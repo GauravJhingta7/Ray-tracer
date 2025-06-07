@@ -72,7 +72,7 @@ We welcome contributions from the community! To contribute:
 
 
 ## CONTACT
-For any inquiries or support, please contact us at sahil852145693@gmail.com
+For any inquiries or support, please contact us at g.jhingta@gmail.com
 
 
 
